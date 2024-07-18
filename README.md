@@ -1,5 +1,4 @@
 # Finalproject-CCS0105
-202310321_ MIKYLA A. ESCOBAL
 + Hi!! I'm Mikyla aka 'Kyla'
 + My full name is Mikyla A. Escobal
 + Studentt No. : 202310321
